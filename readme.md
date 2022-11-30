@@ -20,7 +20,9 @@ MIUI刷机包：[点击查看](https://www.yuque.com/ganju-b6fal/kb/qulkvw?)
 
 配合IDM下载器破解百度网盘下载限制：[点击查看](https://www.yuque.com/docs/share/3c397410-0fc5-4a7a-a44d-b9299b596aad?#)
 
-### 友情链接
+---
+
+##友情链接
 
 AList：[点击查看](https://alist.nn.ci/zh/)
 
