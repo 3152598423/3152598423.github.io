@@ -22,7 +22,7 @@ MIUI刷机包：[点击查看](https://www.yuque.com/ganju-b6fal/kb/qulkvw?)
 
 ---
 
-## 友情链接
+##友情链接
 
 AList：[点击查看](https://alist.nn.ci/zh/)
 
@@ -44,3 +44,4 @@ APP分享官网：[点击查看](https://appshare.muge.info/)
 
 拉普拉斯的小恶魔的下载站：[点击查看](https://www.123pan.com/s/8XtRVv-xc4fd)
 ## 
+
