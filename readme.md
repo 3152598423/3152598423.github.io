@@ -10,6 +10,16 @@
 
 ---
 
+应用集：[点击查看](https://www.123pan.com/s/hvZDVv-8nwxH)
+
+备用：[点击查看](https://jinnan.lanzouy.com/b01k1agba)
+
+MIUI刷机包：[点击查看](https://www.yuque.com/ganju-b6fal/kb/qulkvw?)
+
+网页版XX视频会员破解：[点击查看](https://www.yuque.com/docs/share/623a8997-d8bb-4ff3-9491-b36fc255d201?#)
+
+配合IDM下载器破解百度网盘下载限制：[点击查看](https://www.yuque.com/docs/share/3c397410-0fc5-4a7a-a44d-b9299b596aad?#)
+
 ## 友情链接
 
 AList：[点击查看](https://alist.nn.ci/zh/)
