@@ -10,6 +10,8 @@
 
 ---
 
+槿南的备份站：[点击查看](https://www.yuque.com/ganju-b6fal/htpz6v/lg955g?singleDoc#)
+
 应用集：[点击查看](https://www.123pan.com/s/hvZDVv-8nwxH)
 
 备用：[点击查看](https://jinnan.lanzouy.com/b01k1agba)
