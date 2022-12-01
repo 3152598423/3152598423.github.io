@@ -38,7 +38,7 @@ AList：[点击查看](https://alist.nn.ci/zh/)
 
 小爱音色：[点击查看](http://ai.oohhy.com/)
 
-APP分享官网：[点击查看](https://appshare.muge.info/)
+APP分享官网：[点击查看](https://appshare.vip)
 
 橙子的资源库：[点击查看](https://pan.lovecheng.xyz/)
 
