@@ -22,7 +22,7 @@ MIUI刷机包：[点击查看](https://www.yuque.com/ganju-b6fal/kb/qulkvw?)
 
 ---
 
-##友情链接
+###友情链接
 
 AList：[点击查看](https://alist.nn.ci/zh/)
 
